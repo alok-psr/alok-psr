@@ -4,7 +4,7 @@
 
 🏀 Interests:basketball and some chess
 
-📫 How to Reach Me: alok.psr1@gmail.com
+📫 How to Reach Me: alokrathore136@gmail.com
 
 Thanks for stopping by, and feel free to explore my repositories to see what I’m working on!
 
