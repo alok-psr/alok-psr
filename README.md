@@ -1,8 +1,8 @@
 👋 Hi, I’m @alok-psr
 
-🌱 I’m curently learning Python and expolring fun libreries
+🌱 I’m currently learning Python and web development and exploring fun libraries
 
-🏀 Interests:basketball and some chess
+🏀 Interests: basketball and some chess
 
 📫 How to Reach Me: alokrathore136@gmail.com
 
